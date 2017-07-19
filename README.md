@@ -1,0 +1,2 @@
+# gg_kingdom
+power
